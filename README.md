@@ -1,1 +1,1 @@
-# Student-work-from-Bolychevskiy
+# work-from-Bolychevskiy
